@@ -1,1 +1,0 @@
-# kadinlar-gunu
